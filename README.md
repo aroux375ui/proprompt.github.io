@@ -1,1 +1,1 @@
-# proprompt.github.io
+# propromptdirectory.github.io
